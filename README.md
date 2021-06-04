@@ -1,1 +1,0 @@
-# jewelryweb.github.io
